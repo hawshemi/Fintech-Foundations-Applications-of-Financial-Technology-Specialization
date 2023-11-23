@@ -7,7 +7,7 @@
 
 ### 1. [FinTech: Foundations, Payments, and Regulations](https://www.coursera.org/learn/wharton-fintech-overview-payments-regulations?specialization=wharton-fintech)
 
-####    **Certificate:** 
+####    **Certificate:** _https://www.coursera.org/account/accomplishments/verify/JKGTK6NXPM2B_
 #
 
 ### 2. [Cryptocurrency and Blockchain: An Introduction to Digital Currencies](https://www.coursera.org/learn/wharton-cryptocurrency-blockchain-introduction-digital-currency?specialization=wharton-fintech)
