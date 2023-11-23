@@ -17,7 +17,7 @@
 
 ### 3. [Lending, Crowdfunding, and Modern Investing](https://www.coursera.org/learn/wharton-crowdfunding-marketplace-lending-modern-investing?specialization=wharton-fintech)
 
-####    **Certificate:** 
+####    **Certificate:** _https://www.coursera.org/account/accomplishments/verify/V5JS4RNRJJBG_
 #
 
 ### 4. [Application of AI, InsurTech, and Real Estate Technology](https://www.coursera.org/learn/wharton-ai-application-insurtech-real-estate-technology?specialization=wharton-fintech)
