@@ -1,7 +1,7 @@
 # Fintech: Foundations & Applications of Financial Technology Specialization
 
 
-## Fintech: Foundations & Applications of Financial Technology Specialization](https://www.coursera.org/specializations/wharton-fintech)
+## [Fintech: Foundations & Applications of Financial Technology Specialization](https://www.coursera.org/specializations/wharton-fintech)
 ####    **Certificate:** 
 #
 
