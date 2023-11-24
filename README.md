@@ -22,7 +22,7 @@
 
 ### 4. [Application of AI, InsurTech, and Real Estate Technology](https://www.coursera.org/learn/wharton-ai-application-insurtech-real-estate-technology?specialization=wharton-fintech)
 
-####    **Certificate:** 
+####    **Certificate:** _https://www.coursera.org/account/accomplishments/verify/EL3V7BDSGMKV_
 #
 
 
